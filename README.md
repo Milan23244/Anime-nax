@@ -1,1 +1,1 @@
-# Anime-nax
+# Anime-max
